@@ -1,1 +1,1 @@
-# WT-Lab
+# Website of Department of ICT
